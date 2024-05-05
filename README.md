@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @rdpak
+- Interested in AI and deep learning
+- Enrolled at OSU in Electrical & Computer Engineering
+- Reach out to me at rdpak22@gmail.com
+- He/Him
